@@ -1,0 +1,2 @@
+# xrorex
+gir işte aq
